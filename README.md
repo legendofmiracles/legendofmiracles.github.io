@@ -1,1 +1,1 @@
-# legendofmiracles.github.io
+# LOLSU.DE SUCKS
